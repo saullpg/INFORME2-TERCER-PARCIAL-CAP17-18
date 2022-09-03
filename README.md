@@ -113,6 +113,7 @@ de banda? ¿Cuál es la frecuencia resonante?
 
 #### 4. VIDEO
 
+https://www.youtube.com/watch?v=6vdIA-vm8xw
 
 #### 5. CONCLUSIONES
 
